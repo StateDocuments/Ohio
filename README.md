@@ -1,5 +1,2 @@
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Ohio/blob/master/081920201528_t.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Ohio/blob/master/081920201545_t.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Ohio/blob/master/081920201546_t.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Ohio/blob/master/081920201547_t.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Ohio/blob/master/081920201548_t.jpg)
+![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Ohio/blob/master/cumulus.jpg)
+![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Ohio/blob/master/snapshot.jpg)
